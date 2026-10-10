@@ -1,0 +1,6 @@
+# AICTE-vs-UGC
+When students begin their search for higher education institutions in India, they are often bombarded with various acronyms and accreditation jargon. Among the most common—and occasionally confusing—are AICTE and UGC. Understanding the difference between these two regulatory bodies is absolutely essential, as the legal validity of your degree, your eligibility for future academic studies, and your professional job prospects heavily depend on the approvals your chosen university or college holds.
+
+Established by the Government of India, the University Grants Commission (UGC) is the apex regulatory body responsible for coordinating, determining, and maintaining the standards of higher education in the country. Its jurisdiction broadly covers general universities and colleges offering degrees in arts, commerce, science, and humanities.
+
+If you want your bachelor's or master's degree to be legally valid and widely accepted by employers, ensuring that the institution is [UGC Accredited](https://learnurture.com/blogs/aicte-vs-ugc-approval-whats-the-difference) is an absolute necessity. Only a properly recognized UGC Approved University has the statutory authority to grant academic degrees in India. This applies universally across modes of education.
